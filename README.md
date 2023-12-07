@@ -12,5 +12,5 @@
 
   leticia.lau@escola.pr.gov.br
 
-![](https://media.tenor.com/2WvbiMSEPh4AAAAi/taylor-swift-taylor.gif)
+![](https://tenor.com/pt-BR/view/taylor-swift-lover-gif-24359969)
  
